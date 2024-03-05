@@ -4,4 +4,4 @@
 
 📚 I’m currently learning about maths and programming at Universidad de Málaga.
 
-✉️ You can contact me via Instagram (@sergioldna) or Discord (frogger#0090).
+✉️ You can contact me via Instagram (@sergioldna).
